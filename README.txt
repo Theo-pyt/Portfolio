@@ -12,3 +12,7 @@ Skills:
 -Attention to detail
 -Driven
 -Adaptable
+
+You can find me @ theodor.pint@gmail.com
+and
+www.linkedin.com/in/theodor-p-588623142
